@@ -1,2 +1,2 @@
 # random-script-cracked-
-Well  
+get a better whitelist :wow:
